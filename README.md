@@ -20,7 +20,7 @@ layout:
 
 # 🔜 Coming soon
 
-Follow [**Kcalb Community**](https://kcalb.community/) on [**Telegram**](https://kcalb.community/) or [**subscribe**](https://aecb16de.sibforms.com/serve/MUIFAOjC-iq1moKO\_Wla8swRwKprz-xIxJVKnOfK0G65-AZE7RjpyVH7Z221znhDOcGiFoGjLzps9FE39CKdhmPAmcXp0-9sfTPfWrg39Vq\_ijHh-UTPCIvYXq1fetJSs6F1Dpr1oZJHkojCXmPSc37ryDzHXqY3uIZlwhV8FkFpJIfVONDBwlEnlRwEXiXW0sjcA2Xhtb1l7Q9R) to the newsletter to stay informed about developments, community events and special offers.
+Follow [**Kcalb Community**](https://kcalb.community/) on [**Telegram**](https://t.me/kcalb\_community/) or [**subscribe**](https://aecb16de.sibforms.com/serve/MUIFAOjC-iq1moKO\_Wla8swRwKprz-xIxJVKnOfK0G65-AZE7RjpyVH7Z221znhDOcGiFoGjLzps9FE39CKdhmPAmcXp0-9sfTPfWrg39Vq\_ijHh-UTPCIvYXq1fetJSs6F1Dpr1oZJHkojCXmPSc37ryDzHXqY3uIZlwhV8FkFpJIfVONDBwlEnlRwEXiXW0sjcA2Xhtb1l7Q9R) to the newsletter to stay informed about developments, community events and special offers.
 
 <div align="left">
 
